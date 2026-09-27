@@ -28,9 +28,9 @@ title: 常用网站
 |[有爱爱](https://www.uaa.com/)|     |综合|
 |[韩国漫画](https://hanmm.org/)|     |漫画|
 |[丽图](https://litu100.xyz/)|     |漫画|
-|[天天看漫画](https://www.ttkmh.com/)|     |漫画|
-|[天天看漫画](https://www.ttkmh.com/)|     |漫画|
-|[天天看漫画](https://www.ttkmh.com/)|     |漫画|
+|[第一漫画网](https://dmmtu.com/)|     |漫画|
+|[福利漫画](https://itsacg.top)|     |漫画|
+|[绅士漫画](https://wnacg.date/)|     |漫画|
 |[天天看漫画](https://www.ttkmh.com/)|     |漫画|
 |[天天看漫画](https://www.ttkmh.com/)|     |漫画|
 
